@@ -9,6 +9,8 @@ Supriya Legha<br>
 Priti Kumari<br>
 Sanjana Ganesh<br>
 Ameesha Shukla<br>
+Ishpriya Bara<br>
+Mansi Rai<br>
 
 
 
